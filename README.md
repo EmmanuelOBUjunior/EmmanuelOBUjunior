@@ -1,6 +1,6 @@
 
 
-I am a persevering, persuaded and energetic dude with a demonstrated
+I am a persevering, persuaded and energetic person with a demonstrated
 reputation in Computer Science and Engineering. I generally
 endeavor to accomplish the best quality conceivable, at some
 random errand and in any circumstance. I am acquainted with
